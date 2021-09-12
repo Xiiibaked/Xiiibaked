@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Xiiibaked
+- 👀 I’m interested in making money for my family.
+- 🌱 I’m currently learning how to be a techie in this vast digital world
+- 📫 How to reach me twitter
